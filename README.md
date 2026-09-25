@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-COUD920503HSRRRG07
+COUD920503HSRRRG07
